@@ -8,7 +8,7 @@ Deixo aqui as redes sociais da Soberana.
 
 ☭ [Instagram](https://www.instagram.com/soberana.tv/)  
 ☭ [TikTok](https://www.tiktok.com/@cortescanhotos)  
-☭ [Youyube](https://www.youtube.com/channel/UC8tnKW-FN6LdvKazw5RmOOQ)  
+☭ [Youtube](https://www.youtube.com/channel/UC8tnKW-FN6LdvKazw5RmOOQ)  
 ☭ [Discord](https://discord.com/invite/BZxknXgryM)  
 ☭ [Twitch](https://www.twitch.tv/team/soberana)  
 ☭ [Twitter](https://twitter.com/Soberana_TV)  
