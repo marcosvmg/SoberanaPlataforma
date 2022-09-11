@@ -1,6 +1,6 @@
 # Soberana!
 
-A Soberana é um coletivo marxista-leninista que atua na disputa pela consciência política dos trabalhadores na internet.
+"A Soberana é um coletivo marxista-leninista que atua na disputa pela consciência política dos trabalhadores na internet. ~Soberana"
 
 Faço parte da Comunidade, e como forma de apoiar e querer colaborar com a causa, estarei aqui estudando e desenvolvendo uma plataforma única e exclusiva da Soberana, fiquem a vontade para colaborarem, criticarem etc. Será de grande ajuda!
 
