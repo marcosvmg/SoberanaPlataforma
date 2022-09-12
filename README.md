@@ -13,3 +13,5 @@ Deixo aqui as redes sociais da Soberana.
 ☭ [Twitch](https://www.twitch.tv/team/soberana)  
 ☭ [Twitter](https://twitter.com/Soberana_TV)  
 ☭ [Github](https://github.com/soberanatv)
+
+![Logo Soberana](assets/img/logos-soberana/logo-com-texto.png)
